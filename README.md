@@ -41,3 +41,4 @@ Currently, I am working on developing my academic, research, and technical skill
 I believe in continuous learning, personal growth, and using knowledge to make a positive impact.
 
 “Learning today, creating possibilities for tomorrow.” 🌱
+https://www.linkedin.com/in/khadeeja-naseer-023a34371?utm_source=share_via&utm_content=profile&utm_medium=member_ios
